@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Hardika Dheer
+# Hi there! I'm Hardika Dheer 👋
 
 ### AI Engineer | Software Developer | AI & ML Graduate
 
